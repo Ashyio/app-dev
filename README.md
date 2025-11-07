@@ -8,7 +8,7 @@ My first repository
 [*When Life Gives You Tangerines*](https://en.wikipedia.org/wiki/When_Life_Gives_You_Tangerines) is a 2025 South Korean romance slice-of-life television series written by Lim Sang-choon, directed by Kim Won-seok, and starring IU, Park Bo-gum, Moon So-ri, and Park Hae-joon. It was released on Netflix every Friday, from March 7, 2025 to March 28, 2025.
 
 
->The drama follows the adventurous life and many trials of Ae-sun (IU), a poor girl wanting to become a poet who was born in Jeju in 1951, and Gwan-sik (Park Bo-gum), a young man who cherishes and loves her.[2] The drama is narrated by their daughter, Yang Geum-yeong.
+>The drama follows the adventurous life and many trials of Ae-sun (IU), a poor girl wanting to become a poet who was born in Jeju in 1951, and Gwan-sik (Park Bo-gum), a young man who cherishes and loves her. The drama is narrated by their daughter, Yang Geum-yeong.
 
 
 ## Cast and Characters
