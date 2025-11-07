@@ -83,6 +83,8 @@ Ae-sun's deadbeat stepfather Byeong-chul is played by Oh Jung-se, a prolific mov
 **Oh Min-ae as Kwon Gye-ok**
 
 ![F4MwvBGSepkwgMAvqdcArX-768-80 jpg](https://github.com/user-attachments/assets/b4b54380-d1c2-4af5-ac27-0287a9447cc9)
+
+
 Oh Min-ae, 59, plays Gwan-sik's determined mother Gye-ok. The film and TV actress has appeared in shows including Miss Sunshine, Penthouse: War in Life, D.P., My Liberation Notes, Blind, The Glory, Daily Dose of Sunshine, A Killer Paradox, and The Whirlwind.
 
 
